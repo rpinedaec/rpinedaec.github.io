@@ -1,2 +1,0 @@
-# rpinedaec.github.io
-PaginaPersonal
